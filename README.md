@@ -5,8 +5,9 @@ Hit me up on email as well as on social platforms but be meaningul, I am open fo
 ###### Profiles:
 Email: workperson66@gmail.com
 
-[facebook](https://www.facebook.com/arsal.imran.22) | [intagram](https://www.instagram.com/arsalimran.dev) |  [linked-in](https://www.linkedin.com/in/arsal.imran.22)
+[facebook](https://www.facebook.com/arsal.imran.22) | [intagram](https://www.instagram.com/arsalimran.dev) |  [linked-in](https://www.linkedin.com/in/arsal.imran.22) | 
 [whatsapp](https://wa.me/message/QNO72OTPZAGSF1) | 
+[twitter](https://www.twitter.com/arsal_imran_) | 
 [medium](https://www.medium/com/@workperson66)
 
 
