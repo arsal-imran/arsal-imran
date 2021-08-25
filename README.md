@@ -6,12 +6,12 @@ I am Arsal Imran. Got formal Education in Software Engineering. Hand-knitted wit
 
 Email: workperson66@gmail.com
 
-###### Profiles:
+###### Social:
 
-[facebook](https://www.facebook.com/arsal.imran.22) | [intagram](https://www.instagram.com/arsalimran.dev) |  [linked-in](https://www.linkedin.com/in/arsal-imran) | 
-[whatsapp](https://wa.me/message/QNO72OTPZAGSF1) | 
-[twitter](https://www.twitter.com/arsal_imran_) | 
-[medium](https://www.medium.com/@workperson66)
+[Facebook](https://www.facebook.com/arsal.imran.22) | [intagram](https://www.instagram.com/arsalimran.dev) |  [Linkedin](https://www.linkedin.com/in/arsal-imran) | 
+[Whatsapp](https://wa.me/message/QNO72OTPZAGSF1) | 
+[Twitter](https://www.twitter.com/arsal_imran_) | 
+[Medium](https://www.medium.com/@workperson66)
 
 ---
 
