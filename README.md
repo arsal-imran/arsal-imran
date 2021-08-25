@@ -4,12 +4,9 @@ I am Arsal Imran. Got formal Education in Software Engineering. Hand-knitted wit
 
 **How to contant me?**
 
-Hit me up on email as well as on social platforms but be meaningul, I am open for new ideas and new people. I dont like trash.
-
+Email: workperson66@gmail.com
 
 ###### Profiles:
-
-Email: workperson66@gmail.com
 
 [facebook](https://www.facebook.com/arsal.imran.22) | [intagram](https://www.instagram.com/arsalimran.dev) |  [linked-in](https://www.linkedin.com/in/arsal-imran) | 
 [whatsapp](https://wa.me/message/QNO72OTPZAGSF1) | 
@@ -18,10 +15,5 @@ Email: workperson66@gmail.com
 
 ---
 
-**Other skills:**
-1. Graphic Design
-2. Ad. Design
-3. Bloggin and writing
-4. Video editing and VFx
-5. Youtubing
-6. Many many more.. //not to disclose
+
+*Hit me up on email as well as on social platforms but be meaningul, I am open for new ideas and new people. I dont like trash.*
