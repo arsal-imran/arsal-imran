@@ -8,7 +8,7 @@ Email: workperson66@gmail.com
 
 ###### Social:
 
-[Facebook](https://www.facebook.com/arsal.imran.22) | [intagram](https://www.instagram.com/arsalimran.dev) |  [Linkedin](https://www.linkedin.com/in/arsal-imran) | 
+[Facebook](https://www.facebook.com/arsal.imran.22) | [Intagram](https://www.instagram.com/arsalimran.dev) |  [Linkedin](https://www.linkedin.com/in/arsal-imran) | 
 [Whatsapp](https://wa.me/message/QNO72OTPZAGSF1) | 
 [Twitter](https://www.twitter.com/arsal_imran_) | 
 [Medium](https://www.medium.com/@workperson66)
