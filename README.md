@@ -1,4 +1,4 @@
-I am Arsal Imran. Got formal Education in Software Engineering. Hand-knitted with MEAN Stack Web Development. Highly sensitive to UI/UX things. Use agile and scrum method of Software Development. Highly motivated to make to work in multi-dimensional environment.
+I am Arsal Imran. Got formal Education in Software Engineering. Hand-knitted with MEAN Stack Web Development. Highly sensitive to UI/UX things. I use agile and scrum methodolgy of Software Development.
 
 ---
 
