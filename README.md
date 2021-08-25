@@ -16,4 +16,4 @@ Email: workperson66@gmail.com
 ---
 
 
-*Hit me up on email as well as on social platforms but be meaningul, I am open for new ideas and new people. I dont like trash.*
+*Hit me up on email as well as on social platforms but be meaningul, I am open for new ideas and new people. And dont be a trash.*
